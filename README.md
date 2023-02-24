@@ -1,4 +1,4 @@
-## How did Americans govern themselves during the Constitution’s first tumultuous decades
+## Early American Governance: The First Decades
 
 Led by [Professor Peter Kastor](https://history.wustl.edu/people/peter-kastor) at Washington University in St. Louis, this project aims to uncover how the federal government operated during the early years of the Constitution. Despite the wealth of resources available about the Founding Fathers and the federal system they established, there are still basic questions that remain unanswered.
 
